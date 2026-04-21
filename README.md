@@ -42,3 +42,4 @@ Open to conversations around ML, robotics, AI systems, and autonomous control.
 
 📧 victorbalderas64@icloud.com  
 💼 [Handshake](https://app.joinhandshake.com/profiles/victor-b)
+💼 [LinkedIn](www.linkedin.com/in/vic-balderas)
